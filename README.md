@@ -6,7 +6,7 @@
 
 <br>
 
-&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; [Ata ,](https://greenninjas.atabook.org/)       &emsp;      [Straw ,](https://ashsswaggs.straw.page)      &emsp;   [Carrd !](https://theobalds.carrd.co/)
+&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;&emsp; [Ata ,](https://greeninjas.atabook.org/)       &emsp;      [Straw ,](https://ashsswaggs.straw.page)      &emsp;   [Carrd !](https://theobalds.carrd.co/)
 
 
 &emsp;&emsp;&emsp;&emsp;&emsp; ${\textsf{\color{#5D27B4} c+h}}$ ${\textsf{\color{#A327B4} Freely!}}$ &emsp; ${\textsf{\color{#7A55D8} .✦ ݁˖}}$ &emsp; ${\textsf{\color{#B4277E} int}}$ ${\textsf{\color{#5424A8} enc >-<}}$ 
