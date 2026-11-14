@@ -1,7 +1,7 @@
  &emsp; &emsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=7A13C8&width=435&lines=%2C+Purple+rain%2C+Purple+rain+.+.+')](https://git.io/typing-svg)
 
 
-<img <img width="451" height="554" alt="ashswagg" src="https://github.com/user-attachments/assets/22e99431-cded-48b2-8f3a-4e9ad049dafc" />
+<img width="451" height="554" alt="ashswagg" src="https://github.com/user-attachments/assets/22e99431-cded-48b2-8f3a-4e9ad049dafc" />
 
 
 <br>
